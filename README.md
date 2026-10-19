@@ -1,2 +1,2 @@
 # 3c
-oloko meu[
+oloko meu
